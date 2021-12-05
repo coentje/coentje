@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @coentje
 - 👀 I’m interested in stuff
-- 🌱 I’m currently learning yo cope
+- 🌱 I’m currently learning to cope
 - 💞️ I’m not looking to collaborate
 - 📫 How to reach me, you don't 
 
